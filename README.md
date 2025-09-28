@@ -18,8 +18,8 @@ We build fast, mobile-friendly **business websites and online stores** for compa
 - Ongoing support
 
 ## Get a Quote
-- 📧 Email: info@webdesignpretoria.co.za  
-- 📞 Phone/WhatsApp: +27 76 000 0000  
+- 📧 Email: mushi@webdesignpretoria.co.za  
+- 📞 Phone/WhatsApp: +27 83 433 6968 
 - 🌍 https://www.webdesignpretoria.co.za
 
 ## Portfolio / Case Studies
